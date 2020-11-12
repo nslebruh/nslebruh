@@ -1,6 +1,7 @@
-# Hello Nae Nae Baby
-# I create cringe in the name of Allah
+# Hello Nae Nae Babies
+I create cringe in the name of Allah
 
+Do not contact me 
 <!--
 **nslebruh/nslebruh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
